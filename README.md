@@ -1,4 +1,4 @@
-![Visitor Count](https://visitor-badge.laobi.icu/badge?page_id=crewcik)
+![Visitor Count](https://visitor-badge.laobi.icu/badge?page_id=yigitdev57)
 
 # Hello! 👋 I'm Yiğit Yüksel
 
